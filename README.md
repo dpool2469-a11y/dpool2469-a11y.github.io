@@ -1,1 +1,0 @@
-# dpool2469-a11y.github.io
